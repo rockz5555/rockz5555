@@ -8,7 +8,7 @@
 
 - 💬 Ask me about <strong>anything 😁</strong>
 
-- 📫 How to reach me <strong>nizwer@live.com</strong>
+- 📫 How to reach me <strong>info@nizwer.top</strong>
 </pre>
 
 <h3 align="center">Connect with me:</h3>
